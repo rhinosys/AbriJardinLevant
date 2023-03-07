@@ -23,6 +23,11 @@ bache https://www.leroymerlin.fr/produits/terrasse-jardin/decoration-du-jardin-e
 
 osb -> https://www.leroymerlin.fr/produits/menuiserie/panneau-bois-tablette-etagere-tasseau-moulure-et-plinthe/panneau-bois-agglomere-mdf/dalle-osb-1-3-plis-epicea-naturel-ep-15-mm-x-l-205-x-l-67-50-cm-68398484.html
 
+
+### toit vegetale 
+
+https://www.valleeducousin.fr/spip.php?article360
+
 ### DRAINAGE VOITURE
 
 
